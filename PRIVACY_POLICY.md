@@ -1,3 +1,5 @@
+#Prince Selorm Aglonoo
+
 # Privacy Policy for MoodReset
 
 **Last Updated: November 29, 2025**
