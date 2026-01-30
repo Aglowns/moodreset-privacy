@@ -2,7 +2,7 @@
 
 # Privacy Policy for MoodReset
 
-**Last Updated: November 29, 2025**
+**Last Updated: Jan 30, 2026**
 
 ## Introduction
 
